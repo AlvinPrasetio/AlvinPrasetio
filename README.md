@@ -24,4 +24,7 @@ Here are some ideas to get you started:
 - 📫 How to reach me: alvinprazz11@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: United Fans
+- ???? How to reach me on 
+<a href="https://www.instagram.com/alvinprasetio23/" target="_blank">Instagram</a>, 
+<a href="https://www.linkedin.com/in/alvin-prasetio-b685b8309/" target="_blank">LinkedIn</a>
 -->
